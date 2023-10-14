@@ -1,0 +1,2 @@
+# notasmediasbimestrais
+ notas ,medias bimestrais
